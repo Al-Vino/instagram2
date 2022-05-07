@@ -8,6 +8,8 @@ Tapi Ngga Cp² Semua Lah Pasti Ada Ijonya🔥🔥
 
 
 # PAKE DOANG NGGA FOLLOW,KONTOL LUU
+Logo🌟
+![deskripsi gambar](https://i.ibb.co/26XCty9/Screenshot-2022-05-07-10-51-13-457-com-termux.png)
 
 # Instalation
 Download apk Termuxnya disini biar ngga eror🌟
