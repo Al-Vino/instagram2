@@ -1,4 +1,11 @@
 # Cooming Soon 
+# Warning
+[•] Tools Ini 💯% Free, Ingat Jangan Di Jual Lah Kontol
+Kalau Hasilnya Kebanyakan Cp syukurin Aja Namanya Juga Free Asw🗿+Masih Perkembangan Juga
+Tapi Ngga Cp² Semua Lah Pasti Ada Ijonya🔥🔥
+1 Lagi Perlu Diingat : Hasil Tergantung Target,Maka Bijak² lah Anda Untuk Mencari Target
+♥️Love you all♥️
+
 
 # PAKE DOANG NGGA FOLLOW,KONTOL LUU
 
